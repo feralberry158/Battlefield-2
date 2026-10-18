@@ -220,4 +220,4 @@ Battlefield 2 is available as a full free version, allowing you to enjoy all fea
 Download Battlefield 2 now and join the battle! Experience the thrill of warfare in one of the best FPS games ever created!
 
 ---
-**Last updated:** 2026-10-17 23:35:19 UTC
+**Last updated:** 2026-10-18 01:53:28 UTC
